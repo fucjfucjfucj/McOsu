@@ -1,4 +1,4 @@
-# McOsu skins
+# McOsu skins (+My edits lol!)
 
  # [aria...](https://sprosive.s-ul.eu/1wk6WQel)
 ![](https://puu.sh/I4akt.jpg)
@@ -43,5 +43,5 @@
 Image doesnt work again!
 
 More to come!
-# []()
-![]()
+# [azr8bubble](https://sprosive.s-ul.eu/025SO3Yb)
+![](https://puu.sh/I4xoY.jpg)
