@@ -45,3 +45,12 @@ Image doesnt work again!
 More to come!
 # [azr8bubble](https://sprosive.s-ul.eu/025SO3Yb)
 ![](https://puu.sh/I4xoY.jpg)
+
+# [5231Jing](https://sprosive.s-ul.eu/6q6Gg04E)
+![](https://puu.sh/I4xrU.jpg)
+
+# [Rizer](https://sprosive.s-ul.eu/qRLoi8Iy)
+![](https://puu.sh/I4xtd.jpg)
+
+# [Waaaaa](https://drive.google.com/uc?id=15oWKJwxJqFU3pB6wowMmAtt3-4Lqcbur)
+![](https://puu.sh/I4xwu.jpg)
