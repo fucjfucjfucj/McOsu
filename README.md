@@ -1,6 +1,6 @@
 # McOsu skins (+My edits lol!)
 
-#[Shiny Bunny_santamonica+aristia](https://drive.google.com/uc?id=16wk7bl4kFiAVAtqlih48JoviveFORPbn)
+# [Shiny Bunny_santamonica+aristia](https://drive.google.com/uc?id=16wk7bl4kFiAVAtqlih48JoviveFORPbn)
 ![](https://media.discordapp.net/attachments/884070324226895873/885216841050521660/unknown.png?width=1076&height=673)
 
 # [Dupa w srake xd](https://drive.google.com/uc?id=1vV4sjvYHfrR59jG-xC1Hl2GYp1gR4Qcy)
