@@ -14,7 +14,7 @@
 ![](https://media.discordapp.net/attachments/884070324226895873/885211460526047292/screenshot1725.jpg?width=1076&height=605)
 
 # [Zloty](https://drive.google.com/uc?id=1fSGAv6r02Fd7Bx5HIGJrbjP5Zd4EebX2)
-![](https://media.discordapp.net/attachments/884070324226895873/885212369926647879/unknown.png)
+![](https://media.discordapp.net/attachments/785849284666195969/885215796236812288/unknown.png)
 
 
  # [aria...](https://sprosive.s-ul.eu/1wk6WQel)
