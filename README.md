@@ -1,5 +1,9 @@
 # McOsu skins (+My edits lol!)
 
+# [Mein T](https://drive.google.com/uc?id=15LjL_L2LvHkZMCoPkTFx5eqNqcK6moSn)
+![](https://media.discordapp.net/attachments/884070324226895873/885218613391413248/screenshot1728.jpg?width=1076&height=605)
+
+
 # [Shiny Bunny_santamonica+aristia](https://drive.google.com/uc?id=16wk7bl4kFiAVAtqlih48JoviveFORPbn)
 ![](https://media.discordapp.net/attachments/884070324226895873/885216841050521660/unknown.png?width=1076&height=673)
 
