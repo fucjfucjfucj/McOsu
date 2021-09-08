@@ -54,3 +54,7 @@ More to come!
 
 # [Waaaaa](https://drive.google.com/uc?id=15oWKJwxJqFU3pB6wowMmAtt3-4Lqcbur)
 ![](https://puu.sh/I4xwu.jpg)
+
+
+# [Zloty](https://drive.google.com/uc?id=1fSGAv6r02Fd7Bx5HIGJrbjP5Zd4EebX2)
+![](https://media.discordapp.net/attachments/856473300288798760/885202922160410705/image0.png?width=630&height=676)
