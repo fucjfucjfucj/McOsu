@@ -1,5 +1,22 @@
 # McOsu skins (+My edits lol!)
 
+# [Dupa w srake xd](https://drive.google.com/uc?id=1vV4sjvYHfrR59jG-xC1Hl2GYp1gR4Qcy)
+![](https://media.discordapp.net/attachments/884070324226895873/885213746966982676/screenshot1727.jpg?width=1076&height=605)
+
+# [зинчик рандом мкосу](https://drive.google.com/uc?id=1HL4Bmx108GdVrSq9zm5r-K52_Z_wUkht)
+![](https://media.discordapp.net/attachments/884070324226895873/885212943116034068/screenshot1726.jpg?width=1076&height=605)
+
+# [Mad Demon and Destroyer](https://drive.google.com/uc?id=1COg4Xlz5vnwcBkWQZfdiNOIeDtu5-YFc)
+![](https://puu.sh/I9UfY.jpg)
+
+
+# [01](https://drive.google.com/uc?id=1Kw90VNxprLrhoPVCzw0tN-Lq9Pb62gv3)
+![](https://media.discordapp.net/attachments/884070324226895873/885211460526047292/screenshot1725.jpg?width=1076&height=605)
+
+# [Zloty](https://drive.google.com/uc?id=1fSGAv6r02Fd7Bx5HIGJrbjP5Zd4EebX2)
+![](https://media.discordapp.net/attachments/884070324226895873/885212369926647879/unknown.png)
+
+
  # [aria...](https://sprosive.s-ul.eu/1wk6WQel)
 ![](https://puu.sh/I4akt.jpg)
 
@@ -56,6 +73,4 @@ More to come!
 ![](https://puu.sh/I4xwu.jpg)
 
 
-# [Zloty](https://drive.google.com/uc?id=1fSGAv6r02Fd7Bx5HIGJrbjP5Zd4EebX2)
-![]()
 
