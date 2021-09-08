@@ -3,7 +3,7 @@
 # [Dupa w srake xd](https://drive.google.com/uc?id=1vV4sjvYHfrR59jG-xC1Hl2GYp1gR4Qcy)
 ![](https://media.discordapp.net/attachments/884070324226895873/885213746966982676/screenshot1727.jpg?width=1076&height=605)
 
-# [зинчик рандом мкосу](https://drive.google.com/uc?id=1HL4Bmx108GdVrSq9zm5r-K52_Z_wUkht)
+# [zin+dripiki](https://drive.google.com/uc?id=1HL4Bmx108GdVrSq9zm5r-K52_Z_wUkht)
 ![](https://media.discordapp.net/attachments/884070324226895873/885212943116034068/screenshot1726.jpg?width=1076&height=605)
 
 # [Mad Demon and Destroyer](https://drive.google.com/uc?id=1COg4Xlz5vnwcBkWQZfdiNOIeDtu5-YFc)
