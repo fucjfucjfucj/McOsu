@@ -1,5 +1,20 @@
 # McOsu skins (+My edits lol!)
 
+# [02](https://drive.google.com/uc?id=11PT_VZnHxzESWSqVypALe-IMfrTJSFrl)
+![](https://media.discordapp.net/attachments/884070324226895873/885532411671224350/screenshot1733.jpg?width=720&height=405)
+
+
+# [WARNING!!!! WARNING!!!!!](https://drive.google.com/uc?id=1eMt5NaCFdtufD-hjykebtqNKVKZe5vVF)
+![](https://media.discordapp.net/attachments/884070324226895873/885531646370127872/screenshot1732.jpg?width=720&height=405)
+
+# [kune678234](https://drive.google.com/uc?id=1y2D4Sm9gXk7sUkneHE4c4LZ48AAGAZq4)
+![](https://media.discordapp.net/attachments/884070324226895873/885530525727592448/screenshot1730.jpg?width=720&height=405)
+
+
+# [Organic Evolution (keylogger)](https://drive.google.com/uc?id=1NDerx5L9vzNRjlINxM9CfOOiPytKswvg)
+![](https://media.discordapp.net/attachments/884070324226895873/885529306976116756/screenshot1729.jpg?width=720&height=405)
+
+
 # [Mein T](https://drive.google.com/uc?id=15LjL_L2LvHkZMCoPkTFx5eqNqcK6moSn)
 ![](https://media.discordapp.net/attachments/884070324226895873/885218613391413248/screenshot1728.jpg?width=1076&height=605)
 
