@@ -1,7 +1,7 @@
 # McOsu skins (+My edits lol!)
 
 
-09.09
+# 09.09
 
 
 
@@ -20,7 +20,7 @@
 ![](https://media.discordapp.net/attachments/884070324226895873/885529306976116756/screenshot1729.jpg?width=720&height=405)
 
 
-08.09
+# 08.09
 
 
 # [Mein T](https://drive.google.com/uc?id=15LjL_L2LvHkZMCoPkTFx5eqNqcK6moSn)
