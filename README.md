@@ -1,7 +1,6 @@
 # McOsu skins (+My edits lol!)
 
 
-# 09.09
 
 
 
