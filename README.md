@@ -1,4 +1,4 @@
-# McOsu skins (+My edits lol!)
+/# McOsu skins (+My edits lol!)
 
 
 
@@ -103,3 +103,4 @@ More to come!
 
 
 
+/
